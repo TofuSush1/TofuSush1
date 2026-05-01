@@ -1,7 +1,6 @@
 
 
 <div align="center">
-                                           <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=B81D07BB&width=435&lines=Katsuki+Bakugo+is+mine+%3E%3A3" alt="Typing SVG" /></a>
   
  [Strawpage](https://bakugotofu.straw.page/) ദ്ദി◝ ⩊ ◜.ᐟ  
 
