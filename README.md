@@ -24,6 +24,7 @@
 
 <h4 align="center">${\textsf{\color{#01385b}She / Her / Female <-- I WAS BORN A FEMALE, SO USE SHE HER not they them or he him. }}$
 
+<img width="734" height="332" alt="image" src="https://github.com/user-attachments/assets/be1d8d26-1cfb-4e2a-b380-d3ce3f669c9b" />
 
 
 <!--
