@@ -6,7 +6,7 @@
 
 
   
- [Strawpage](https://sugurutofu.atabook.org/) ദ്ദി◝ ⩊ ◜.ᐟ
+ [Atabook](https://sugurutofu.atabook.org/) ദ്ദി◝ ⩊ ◜.ᐟ
 
  [𝙼𝚢 𝙶𝚒𝚛𝚕𝙵𝚛𝚒𝚎𝚗𝚍](https://github.com/xzuzui) . [𝚂𝚒𝚐𝚗 𝚖𝚢 𝙶𝚒𝚛𝚕𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚊𝚝𝚊𝚋𝚘𝚘𝚔!](https://xxzu.atabook.org/)  <h4 align="center">${\textsf{\color{#8440cb}We should date Zuu / BE MY GIRLFRIEND 😝}}$
 
