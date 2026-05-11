@@ -1,8 +1,8 @@
 
 
 <div align="center">
-
- <img width="800" height="400" alt="ceea8a6ee8f21c430b310c87a0cfbb09" src="https://github.com/user-attachments/assets/3c2eb7b7-bf9c-4c89-8e71-a57fd87f7c5b" />
+ 
+<img width="540" height="211" alt="905478058f88a799003bfce0b46a19eb" src="https://github.com/user-attachments/assets/ca780c77-4937-4dc3-930d-ece2d6a1e745" />
 
 
   
@@ -19,6 +19,5 @@
  
 [Guns.Lol](https://guns.lol/moshi_tofu)
 
-<img width="540" height="211" alt="905478058f88a799003bfce0b46a19eb" src="https://github.com/user-attachments/assets/ca780c77-4937-4dc3-930d-ece2d6a1e745" />
 
-
+ <img width="800" height="400" alt="ceea8a6ee8f21c430b310c87a0cfbb09" src="https://github.com/user-attachments/assets/3c2eb7b7-bf9c-4c89-8e71-a57fd87f7c5b" />
