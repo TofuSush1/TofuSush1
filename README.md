@@ -15,17 +15,6 @@
  
 [Guns.Lol](https://guns.lol/moshi_tofu)
 
-  
-<img width="1199" height="665" alt="image" src="https://github.com/user-attachments/assets/3f56a7ad-78f4-4d29-8391-5386cdaa3e9c" />
+<img width="540" height="211" alt="905478058f88a799003bfce0b46a19eb" src="https://github.com/user-attachments/assets/ca780c77-4937-4dc3-930d-ece2d6a1e745" />
 
-
-<h4 align="center">${\textsf{\color{#8440cb} if you have drama don't bring it around me!}}$
-
-<h4 align="center">${\textsf{\color{#8440cb} i dont give a fuck what its about just piss of and dont INT with me.}}$
-
-<h4 align="center">${\textsf{\color{#8440cb} If you want to be friends, don't be a little bitch to ANYONE, you have to be nice to EVERYONE and not just your friends.}}$
-
-<h4 align="center">${\textsf{\color{#8440cb}She / Her / Female <-- I WAS BORN A FEMALE, SO USE SHE HER not they them or he him. }}$
-
-<img width="734" height="332" alt="image" src="https://github.com/user-attachments/assets/be1d8d26-1cfb-4e2a-b380-d3ce3f669c9b" />
 
