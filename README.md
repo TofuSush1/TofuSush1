@@ -17,7 +17,7 @@
  
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&size=22&pause=1000&color=01385B&width=437&lines=%F0%9D%93%98+%F0%9D%93%B5%F0%9D%93%B8%F0%9D%93%BF%F0%9D%93%AE+%F0%9D%94%82%F0%9D%93%B8%F0%9D%93%BE.....%F0%96%A5%94+%E0%A3%AD+%CB%96%E0%B9%8B+%E0%A3%AD+%E2%AD%91;%F0%9D%93%A9%F0%9D%93%BE%F0%9D%93%BE...+%CB%96%E2%81%BA%E2%80%A7%E2%82%8A%CB%9A+%E2%99%A1+%CB%9A%E2%82%8A%E2%80%A7%E2%81%BA%CB%96." alt="Typing SVG" /></a>
  
-[Guns.Lol](https://guns.lol/moshi_tofu)
+[Guns.Lol](https://guns.lol/moshi_tofu) [Rentry](https://rentry.co/FlinsTofu)
 
 
  <img width="800" height="400" alt="ceea8a6ee8f21c430b310c87a0cfbb09" src="https://github.com/user-attachments/assets/3c2eb7b7-bf9c-4c89-8e71-a57fd87f7c5b" />
