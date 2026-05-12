@@ -20,4 +20,5 @@
 [Guns.Lol](https://guns.lol/moshi_tofu) - [Rentry](https://rentry.co/MoshiTofu)
 
 
- <img width="800" height="400" alt="ceea8a6ee8f21c430b310c87a0cfbb09" src="https://github.com/user-attachments/assets/3c2eb7b7-bf9c-4c89-8e71-a57fd87f7c5b" />
+<img width="374" height="211" alt="590136300-f5f78bca-37e8-4ff0-883d-f5f84dc5f831" src="https://github.com/user-attachments/assets/10914682-2ff5-4c7a-9c26-39b1a60a5f37" />
+
