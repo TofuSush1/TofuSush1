@@ -21,7 +21,10 @@
 [Guns.Lol](https://guns.lol/moshi_tofu) - [Rentry](https://rentry.co/MoshiTofu)
 
 
-<img width="374" height="211" alt="590136300-f5f78bca-37e8-4ff0-883d-f5f84dc5f831" src="https://github.com/user-attachments/assets/10914682-2ff5-4c7a-9c26-39b1a60a5f37" />
+<img width="498" height="498" alt="gojo-twerk-transparent-gojo" src="https://github.com/user-attachments/assets/653698a0-878d-481a-8e08-3bb9d21262aa" />
+
+
+
 
 
 
