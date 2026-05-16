@@ -2,7 +2,8 @@
 
 <div align="center">
  
-<img width="540" height="211" alt="905478058f88a799003bfce0b46a19eb" src="https://github.com/user-attachments/assets/ca780c77-4937-4dc3-930d-ece2d6a1e745" />
+<img width="200" height="151" alt="geto-suguru-suguru-geto" src="https://github.com/user-attachments/assets/f69929d7-fbf1-4b34-8307-45d7c355e5f4" />
+
 
 
   
@@ -22,6 +23,6 @@
 
 <img width="374" height="211" alt="590136300-f5f78bca-37e8-4ff0-883d-f5f84dc5f831" src="https://github.com/user-attachments/assets/10914682-2ff5-4c7a-9c26-39b1a60a5f37" />
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/d2c06d1d-1f3a-484e-879f-b01277b52420" />
+
 
 
